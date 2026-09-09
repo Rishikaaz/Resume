@@ -1,2 +1,2 @@
 # Resume
--> https://docs.google.com/document/d/1XeDTPIM08sjIVBfRfKTDrlayo3pEhwm3fQmBC_mUTJk/edit?tab=t.0
+-> https://drive.google.com/file/d/1uQTkruqXpGfRhNz7iupknHDslNsFHf_n/view?usp=drive_link
